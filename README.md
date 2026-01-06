@@ -1,1 +1,1 @@
-# Aditya-Rodrigues.gtihub.io
+# Aditya-Rodrigues.github.io
